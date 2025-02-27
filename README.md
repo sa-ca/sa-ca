@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning: How to download more RAM
 - 💞️ I’m looking to collaborate on: Solo projects
 - 📫 How to reach me: Call me, beep me, if you wanna reach me
-- 😄 Pronouns: she/her
 - ⚡ Fun fact: Did you know? Did you know or ever wonder why when you burger on Mayo? Mayo, burgers, you taste. It's like Mayo. And burger on Mayo is like...
 
 <!---
